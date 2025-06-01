@@ -52,8 +52,8 @@ We welcome developers, artists, system thinkers, and wanderers alike.
 Kohi is open.  
 Not just open-source—but **open-soul**.
 
-📫 [Reach out](https://www.instagram.com/essenseofenergy)  
-📽️ [Witness the silence](https://www.youtube.com/@essenseofenergy)  
+📫 [Reach out](https://www.instagram.com/getkohi)  
+📽️ [Witness the silence](https://www.youtube.com/@GetKohi)  
 🌍 [More coming soon...]
 
 ---
